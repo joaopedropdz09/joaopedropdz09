@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @joaopedropdz09
-- 👀 I’m interested in grafitti
+- 👀 I’m interested in muusic
 - 🌱 I’m currently learning computation
 - 💞️ I’m looking to collaborate at my dm
 - 📫 How to reach me call my whatsapp
 - 😄 Pronouns: because from him for him, to him are all things
-- ⚡ Fun fact: rodeo and gorillaz
+- ⚡ Fun fact: dizãs
 
 <!---
 joaopedropdz09/joaopedropdz09 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
